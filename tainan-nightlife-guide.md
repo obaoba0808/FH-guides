@@ -19,7 +19,7 @@
 
 ### KTV 叫傳播流程
 1. 選擇 KTV 並預約包廂
-2. 聯繫 [歐巴傳播](https://obaoba0808.github.io/FH/)（LINE: @938nzmjr）
+2. 聯繫 [歐巴傳播](https://obaoba.online/)（LINE: @938nzmjr）
 3. 指定人數、時間、偏好
 4. 專人送到包廂
 
@@ -29,13 +29,13 @@
 
 推薦：薇閣、伯爵、花樣年華、鑽石汽旅
 
-## 📞 聯繫歐巴傳播
+## 📞 預約與聯繫
 
-- **官方網站**: [歐巴傳播](https://obaoba0808.github.io/FH/)
+- **官方網站**: [歐巴傳播](https://obaoba.online/)
 - **LINE**: @938nzmjr
 - **電話**: 0926-656666
 - **服務地區**: 台南、高雄
 
 ---
 
-*由 [歐巴傳播](https://obaoba0808.github.io/FH/) 提供*
+*台南夜生活指南*
